@@ -12,3 +12,6 @@ My spirit animal is a white owl.
 
 # Working?
 - I think I'm beginning to get the hang of this.
+
+## Coincidence
+- My other spirit animal choice was the Owl! I appreciate their disposition. Most times, I would say I'm an owl. But if my daemon is to represent my weaker side, then it must be the rabbit. What other animal might you have chosen?
